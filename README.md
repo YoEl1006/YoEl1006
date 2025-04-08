@@ -1,13 +1,14 @@
 ***
-**OMOYELE BOLUWATIFE (YoEl)** 
+# OMOYELE BOLUWATIFE (YoEl) #
+
 Web Developer|Entrepreneur|Mathematician|
 ***
-**SKILLS**
+# SKILLS
 Fashion Designing 
-**EDUCATION**
+# EDUCATION #
 currently an undergraduate in the prestigious university studying the greatest course ever that is Mathematics 
 Also training as a web developer at HamzatElectronics 
-**INTEREST**
+# INTEREST #
 Making money,growth and development,nature and food
 **HOW TO REACH ME**
 I'm available on WhatsApp,my number is 09122587803,I can be reached via MightyReign1006@gmail.com,I'll later update my twitter,Facebook and other social media account.
