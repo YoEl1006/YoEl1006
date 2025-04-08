@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YoEl1006
+<b> Omoyele Boluwatife (Tife) </b>
 - 👀 I’m interested in growing,developing and making money
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on  I'm still thinking 
