@@ -1,11 +1,18 @@
 ***
-**Omoyele Boluwatife (Tife)**
-- 👀 I’m interested in growing,developing and making money
-- 🌱 I’m currently learning web development 
-- 💞️ I’m looking to collaborate on  I'm still thinking 
-- 📫 How to reach me I'm very available on WhatsApp- 09122587803
-- 😄 Pronouns: I'm a female,so it's a she
-- ⚡ Fun fact: ...I'm hopelessly romantic 🥴🥴
+**OMOYELE BOLUWATIFE (YoEl)** 
+Web Developer|Entrepreneur|Mathematician|
+***
+**SKILLS**
+Fashion Designing 
+**EDUCATION**
+currently an undergraduate in the prestigious university studying the greatest course ever that is Mathematics 
+Also training as a web developer at HamzatElectronics 
+**INTEREST**
+Making money,growth and development,nature and food
+**HOW TO REACH ME**
+I'm available on WhatsApp,my number is 09122587803,I can be reached via MightyReign1006@gmail.com,I'll later update my twitter,Facebook and other social media account.
+
+- 
 
 <!---
 YoEl1006/YoEl1006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
